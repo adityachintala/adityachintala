@@ -1,0 +1,3 @@
+- 👋Hi, I’m @adityachintala
+- 👀 I’m interested in knowing what I don't know/
+- 🌱 I’m currently learning everything in my reach
