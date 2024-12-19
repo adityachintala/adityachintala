@@ -1,3 +1,3 @@
 - 👋Hi, I’m @adityachintala
-- 👀 I’m interested in knowing what I don't know
-- 🌱 And I’m learning about all the interesting things that I can
+- I like building cool stuff and coding enables me to do it.
+- Have a great idea? Hit me up, let's make interesting stuff come true.
