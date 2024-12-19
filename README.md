@@ -1,3 +1,4 @@
 - 👋Hi, I’m @adityachintala
 - I like building cool stuff and coding enables me to do it.
 - Have a great idea? Hit me up, let's make interesting stuff come true.
+- You can checkout some of the stuff I built below.
